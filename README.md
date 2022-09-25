@@ -1,4 +1,4 @@
-### 😄hi!!! name is July Bruno da Silva😄
+### 😄hi!!! my name is July Bruno da Silva😄
 
 
   ##
